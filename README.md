@@ -70,7 +70,7 @@ ApplyFast Desktop **only works with an active Pro subscription**.
 
 For support, issues, or questions:
 
-📧 kartikkaushik116@gmail.com  
+📧 hello@applyfast.today
 
 ---
 
